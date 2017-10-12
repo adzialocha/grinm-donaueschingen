@@ -1,3 +1,3 @@
 # grinm-donaueschingen
 
-GRINM @ Donaueschingen 2017
+Gender Relations in New Music @ Donaueschingen 2017
